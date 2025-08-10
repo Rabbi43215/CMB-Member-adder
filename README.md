@@ -1,2 +1,7 @@
-# CMB-Member-adder
-SCRIPT MAKE BY 
+Telegram member adder Tools
+
+OWNER OF @BcS_RaiFuL
+
+JOIN OUR CHANNEL LINK- https://t.me/CYBER_MONSTER_BANGLADESH
+
+MAKE BY RAIFUL
